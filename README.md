@@ -11,7 +11,7 @@
 📱 Contact
 
 E-mail- pratapsinghmahendra63@gmail.com
-LinkedIn- (http://github.com/Mahendrapratapsingh9695/github-readme-stats) mahendrapratapsingh63
+LinkedIn- www.linkedin.com/in/mahendrapratapsingh63
 
 
 👩‍💻 Languages
